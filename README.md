@@ -1,2 +1,5 @@
 # Pemrograman3_UAS
-Bapak maaf saya telat. Kemarin gagal push.
+Selamat sore pak.
+Bapak, mohon maaf saya telat. Sejak kemarin saya gagal push.
+Maaf juga karena baru me-push kemrin karena kami baru mendapat kabar untuk me-push kemarin siang.
+Terimakasih pak.
